@@ -1,0 +1,2 @@
+# The-Local-Train
+The Local Train is a Hindi Rock Band from New Delhi who write and produce their own music. The band launched 4 singles over a year before releasing their debut album 'Aalas ka Pedh' in 2015. Their second album ‘Vaaqif’ was released in January 2018 which generated very promising sales and was one of the most streamed independent albums on Apple Music India. Post the success of their albums, TLT witnessed a huge demand for their live shows and are frequently invited to perform for their fans all over the country.
